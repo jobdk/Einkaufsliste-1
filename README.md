@@ -16,4 +16,8 @@ Zeit              | Was              |
 2018-2022         | Studium          |
 2022- Open End    | Arbeiten         |
 
+***
+Liebelingsfarbe: gelb
+
+
 
